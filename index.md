@@ -13,9 +13,8 @@ KAIST College of Business
 **Contact:**
 - E-mail: jinsoo.han@kaist.ac.kr
 - Phone: +82-10-9953-4997
-
-[CV (Download)](https://drive.google.com/file/d/1P0cZGpfgVYoXt2LZp7jcyfBhDD-0Y7nf/view?usp=share_link)
-[Google Scholar](https://scholar.google.com/citations?hl=en&view_op=list_works&gmla=AJsN-F6pRTikbfXBfX8T5_7oUbbONvkYCvnfh8AjcgJ2W5WhqsSyifnUldSUSnYhUwLU97_RjADPcHQDcz8VliaXpAbuja7Wzw&user=BSiSUbEAAAAJ)
+- [CV (Download)](https://drive.google.com/file/d/1P0cZGpfgVYoXt2LZp7jcyfBhDD-0Y7nf/view?usp=share_link)  
+- [Google Scholar](https://scholar.google.com/citations?hl=en&view_op=list_works&gmla=AJsN-F6pRTikbfXBfX8T5_7oUbbONvkYCvnfh8AjcgJ2W5WhqsSyifnUldSUSnYhUwLU97_RjADPcHQDcz8VliaXpAbuja7Wzw&user=BSiSUbEAAAAJ)
 
 ---
 
